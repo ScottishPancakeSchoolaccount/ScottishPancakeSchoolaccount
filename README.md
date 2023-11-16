@@ -1,4 +1,4 @@
-### Hi there 👋
+### The Playstation 5 doesn't have any games. 
 
 <!--
 **ScottishPancakeSchoolaccount/ScottishPancakeSchoolaccount** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
